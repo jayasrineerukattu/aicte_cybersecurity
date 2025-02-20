@@ -131,7 +131,7 @@ Contributions are welcome!
 ---
 
 ## 📧 **Contact**  
-For any queries or suggestions, please contact [jaya](njayasree8897@gmail.com).  
+For any queries or suggestions, please contact [Jaya](njayasree8897@gmail.com).  
 
 ---
 
